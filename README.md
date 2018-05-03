@@ -1,0 +1,2 @@
+# bitcoinworldbank
+Chúng tôi là một dịch vụ tài chính kỹ thuật số chuyên dụng và tập trung vào việc cung cấp tổ chức tài chính. Chúng tôi là một nhà cung cấp dịch vụ ngân hàng dựa trên thực hành đạo đức, những người cam kết giúp khách hàng của chúng tôi đạt được mục tiêu của họ. Thực tiễn kinh doanh ngân hàng đạo đức là cốt lõi của những gì chúng ta làm, và cách chúng ta làm điều đó và tác động của nó có tầm quan trọng lớn đối với chúng ta.
